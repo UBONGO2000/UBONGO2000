@@ -3,6 +3,7 @@
 🚀 **En constante évolution** | 🌱 **J'apprends, je code, je répète** | 💡 **Adepte des solutions innovantes**
 
 👜 Portfolio : https://portfolio-two-tau-48.vercel.app/
+
 🔗Linkedin : https://www.linkedin.com/in/georges-ntchanga/
 
 ---
